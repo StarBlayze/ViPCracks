@@ -14,6 +14,8 @@ This list will keep getting updated, for free for you guys! (a LOT more to come!
 
 [Bullet Force v1.36 +3 Cheats [ iOS 11 Support ]](https://userscloud.com/3vm9b2ejhlem?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOF40ntWYAuMr2km4lGyMr8IdQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwI%2FvqTBh1rkTK2%2B3iAAe6naRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D) | [[HACK INFO/FEATURES]](https://iosgods.com/topic/43733-bullet-force-v136-3-cheats-ios-11-support/) (This Hack is cracked with ViPCracker V1, Which is bs, but I will only update to V2, when a new version comes out.)
 
+[Harry Potter: Hogwarts Mystery v1.5.4 - Unlimited Gems for Jailed](https://appd.be/star/Harry%20Potter%20Hack%20(Cracked%20by%20StarBlayze).ipa) | [[HACK INFO/FEATURES]](https://iosgods.com/topic/68743-harry-potter-hogwarts-mystery-v154-unlimited-gems-for-jailed/) 
+
 # IMPORTANT — Read this first before you use the hacks!
 
 The Crack process is now handled automatically which means, the process is GUARANTEED to work. 
