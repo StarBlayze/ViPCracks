@@ -12,7 +12,7 @@ This list will keep getting updated, for free for you guys! (a LOT more to come!
 
 [[iOS 11] HAWK: Freedom Squadron Shooter v1.12 Cheats for Jailed iDevices!](https://dailyuploads.net/n1y9hwbpcq95?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOBKHN8zo2O1WTydwiaKCmI4dQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwJrgRfXzuxPPbguK6rAumEkRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D) | [[HACK INFO/FEATURES]](https://iosgods.com/topic/45304-ios-11-hawk-freedom-squadron-shooter-v112-cheats-for-jailed-idevices/)
 
-[Bullet Force HACK](https://userscloud.com/3vm9b2ejhlem?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOF40ntWYAuMr2km4lGyMr8IdQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwI%2FvqTBh1rkTK2%2B3iAAe6naRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D) (This hack is cracked with V1, (due to V2 was not yet made).)
+[Bullet Force v1.36 +3 Cheats [ iOS 11 Support ]](https://userscloud.com/3vm9b2ejhlem?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOF40ntWYAuMr2km4lGyMr8IdQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwI%2FvqTBh1rkTK2%2B3iAAe6naRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D) | [[HACK INFO/FEATURES]](https://iosgods.com/topic/43733-bullet-force-v136-3-cheats-ios-11-support/) (This Hack is cracked with ViPCracker V1, Which is bs, but I will only update to V2, when a new version comes out.)
 
 # IMPORTANT — Read this first before you use the hacks!
 
