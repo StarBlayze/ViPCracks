@@ -6,7 +6,7 @@
 ViP Non-Jailbroken Hacks &amp; Cheats – From iOSGods, Completely free.
 
 # iOSGods ViP Non-Jailbroken Hacks & Cheats (LIST) (FREE/CRACKED)
-This list will keep getting updated, for free for you guys! (a LOT more to come!)
+This list will keep getting updated, for free for you guys! (a LOT more to come!) (Click the links (names) to download Hacks!)
 
 [[iOS 11 Working] MARVEL Contest of Champions v18.0.1 +1 Cheat for Jailed Devices!](https://appd.be/star/MARVEL%20Hack%20(Cracked%20by%20StarBlayze).ipa) | INFO: [[HACK INFO/FEAUTRES]](https://iosgods.com/topic/44075-ios-11-working-marvel-contest-of-champions-v1801-1-cheat-for-jailed-devices/)
 
