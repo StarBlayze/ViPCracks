@@ -8,9 +8,9 @@ ViP Non-Jailbroken Hacks &amp; Cheats – From iOSGods, Completely free.
 # iOSGods ViP Non-Jailbroken Hacks & Cheats (LIST) (FREE/CRACKED)
 This list will keep getting updated, for free for you guys! (a LOT more to come!) (Click the links (names) to download Hacks!)
 
-[[iOS 11 Working] MARVEL Contest of Champions v18.0.1 +1 Cheat for Jailed Devices!](https://appd.be/star/MARVEL%20Hack%20(Cracked%20by%20StarBlayze).ipa) | INFO: [[HACK INFO/FEAUTRES]](https://iosgods.com/topic/44075-ios-11-working-marvel-contest-of-champions-v1801-1-cheat-for-jailed-devices/)
+[[iOS 11 Working] MARVEL Contest of Champions v18.0.1 +1 Cheat for Jailed Devices!](https://appd.be/star/MARVEL%20Hack%20(Cracked%20by%20StarBlayze).ipa) | [[HACK INFO/FEAUTRES]](https://iosgods.com/topic/44075-ios-11-working-marvel-contest-of-champions-v1801-1-cheat-for-jailed-devices/)
 
-[HAWK: Freedom Squadron Shooter HACK](https://dailyuploads.net/n1y9hwbpcq95?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOBKHN8zo2O1WTydwiaKCmI4dQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwJrgRfXzuxPPbguK6rAumEkRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D)
+[[iOS 11] HAWK: Freedom Squadron Shooter v1.12 Cheats for Jailed iDevices!](https://dailyuploads.net/n1y9hwbpcq95?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOBKHN8zo2O1WTydwiaKCmI4dQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwJrgRfXzuxPPbguK6rAumEkRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D) | [[HACK INFO/FEATURES](https://iosgods.com/topic/45304-ios-11-hawk-freedom-squadron-shooter-v112-cheats-for-jailed-idevices/)
 
 [Bullet Force HACK](https://userscloud.com/3vm9b2ejhlem?fpdi_ticket=QHWr7Q05lcYEs9Riud2rOF40ntWYAuMr2km4lGyMr8IdQ2VqinDbwYccoPiRuh49yZ7jRL%2BwpKTOcq3K7pWMTuZB8C3ycfDTOhgn6%2BikNwI%2FvqTBh1rkTK2%2B3iAAe6naRxbXyF%2BNMcW3m4vR6aHy5Q%3D%3D) (This hack is cracked with V1, (due to V2 was not yet made).)
 
