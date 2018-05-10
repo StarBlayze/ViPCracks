@@ -16,6 +16,10 @@ This list will keep getting updated, for free for you guys! (a LOT more to come!
 
 [Harry Potter: Hogwarts Mystery v1.5.4 - Unlimited Gems for Jailed](https://appd.be/star/Harry%20Potter%20Hack%20(Cracked%20by%20StarBlayze).ipa) | [[HACK INFO/FEATURES]](https://iosgods.com/topic/68743-harry-potter-hogwarts-mystery-v154-unlimited-gems-for-jailed/) 
 
+[Tap Titans 2 v2.7.4 +3 [ iOS 9, 10 & iOS 11 ]]
+(https://appd.be/star/Tap%20Titans%20Hack%20%5bStarBlayze%20crc%5d.ipa) | [[HACK INFO/FEATURES]](https://iosgods.com/topic/42492-tap-titans-2-v274-3-ios-9-10-ios-11/) 
+
+
 # IMPORTANT — Read this first before you use the hacks!
 
 The Crack process is now handled automatically which means, the process is GUARANTEED to work. 
